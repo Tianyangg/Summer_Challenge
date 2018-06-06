@@ -19,6 +19,13 @@ https://docs.google.com/document/d/12dEb_kZ25ssZsC8v1SPB-cUUKnWIHinP6srD2D0e1Ag/
 
 
 
+Skype call and discussion
+
+https://docs.google.com/document/d/11Tnis1_KvNZuuCbfAb44VByt3WD_XVHxytdls-Ig0Tk/edit
+
+
+
+
 Life as prison officer
 
 https://prisonandprobationjobs.gov.uk/prison-officer/life-as-a-prison-officer/
