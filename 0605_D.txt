@@ -1,0 +1,19 @@
+how are we measuring success:
+	- dog event
+	    - how many student sign up the dog event
+	    - how many leave the emaik at the event
+	- talk
+	    - how many people who sign up the dog event goes to the talk
+	    - how many people go to the event, (no dog event)
+	    - how many people who sign up
+	- feed back after the event questionare
+
+	- apply
+		- how many people apply
+		  compared to previous events
+		  the percentage of traditional and non traditional
+
+how to follow up:
+	- send the news by email to those who leave the email address
+	- give information to those who didn't go to the event
+	- people who are interested will follow the social media and they'll get news feed
